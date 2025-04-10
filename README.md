@@ -1,1 +1,0 @@
-memorry card
